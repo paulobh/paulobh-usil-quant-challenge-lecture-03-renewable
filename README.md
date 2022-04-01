@@ -1,0 +1,1 @@
+# paulobh-usil-quant-challenge-lecture-03-renewable
